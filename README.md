@@ -1,2 +1,2 @@
-# Lanxey-
-uploading some cringy videos I make!
+hey! ur reading 'README.md'
+well.. GET OUT!
